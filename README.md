@@ -1,1 +1,4 @@
 # buoi6
+## Họ tên: Hà Trọng Nhân
+## MSV: 22810310279
+[hinh anh](54988_4AD5F753-116F-4CF8-97EC-B73D6CDA2D0AL000.jpg)
